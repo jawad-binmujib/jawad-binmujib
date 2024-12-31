@@ -35,9 +35,9 @@ I’m not just learning to code—I’m gearing up to decode the mysteries of cy
 ---
 
 ## **💬 Let’s Connect!**  
-- ✉️ **Email**: [jawadbinmujib219@gmail.com]  
+- ✉️ **Email**: jawadbinmujib219@gmail.com
 - 🌟 **LinkedIn**: www.linkedin.com/in/jawadbinmujib
-- 🌐 **Facebook**: [Your Facebook Profile](https://www.facebook.com/jawadbinmujibb/)
+- 🌐 **Facebook**: https://www.facebook.com/jawadbinmujibb/
 
 ---
 
